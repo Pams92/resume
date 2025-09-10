@@ -1,6 +1,6 @@
-# Pacifique Madibi
+# Pacifique Mubamba Madibi
 
-![Leopard](https://upload.wikimedia.org/wikipedia/commons/7/73/Leopard_Africa.jpg)
+![Pacifique Madibi](https://github.com/Pams92.png)
 
 ## Education
 
